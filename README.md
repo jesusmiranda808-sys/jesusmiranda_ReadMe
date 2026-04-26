@@ -137,4 +137,4 @@ Building toward a research-driven, systematic investment process that integrates
 ## Contact
 
 Email: jesus.vallesmiranda@gmail.com  
-LinkedIn: https://www.linkedin.com/in/jesusvallesmiranda/# jesusmiranda_ReadMe
+LinkedIn: https://www.linkedin.com/in/jesusvallesmiranda/
